@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with quantitative blur sniper bot | multi-wallet-support + multi-chain-support, the #1 blur sniper bot. Includes multi-wallet-support and
 
 
 
